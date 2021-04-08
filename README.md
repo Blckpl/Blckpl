@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Blckpl
 - 👀 Looking forward to creating new teams!
 - 🌱 Currently exploring infrastructure development, vehicle autonomy, and Phunware!
-- 💞️ Let's meet so we can start a new project1
+- 💞️ Let's meet so we can start a new project!
 - 📫 contact@blackpooloperations.com or 313-265-7381
